@@ -84,8 +84,7 @@ _Ježíš přišel k samařskému městu zvanému Sychar, blízko pole, které k
 
 ## Promluva
 
-O slyšeném Božím slovu promlouvá kněz. Jako katoličtí křesťané věříme, že během promluvy při mši svaté na něj zvláštním způsobem působí Duch svatý. Neznamená to nutně, že každé slovo bude geniální podle lidských měřítek. Zaslouží si ale pozornost.
-
+Slyšené Boží slovo je dále vykládáno.
 
 # Přímluvy
 
