@@ -28,11 +28,15 @@ Součástí křesťanského slavení je naslouchání slovům z Bible. Pro dneš
 
 ## První čtení (Soudců 6, 7-16)
 
+Bůh přichází jako první – a překvapivě. Gedeón se skrývá, cítí se nejslabší, a přesto ho Hospodinův posel osloví jako „udatného bohatýra". Boží iniciativa nezávisí na naší připravenosti ani síle. Gedeón má pochybnosti a klade otázky; Bůh mu neodpovídá výčtem důkazů, ale slibem své přítomnosti. Víra zde neznamená absenci pochyb, ale ochotu vydat se na cestu s Bohem, který jedná.
+
 _Čtení z knihy Soudců_
 
 _Když Izraelci tak úpěli k Hospodinu kvůli Midjáncům, poslal k nim proroka, aby jim řekl: „Toto praví Hospodin, Bůh Izraele: Já jsem vás přivedl z Egypta, vyvedl jsem vás z domu otroctví. Vyprostil jsem vás z moci Egypta i z rukou všech vašich utlačovatelů. Vypudil jsem je před vámi a jejich zemi jsem dal vám. Řekl jsem vám: Já jsem Hospodin, váš Bůh. Nebojte se bohů Emorejců, v jejichž zemi sídlíte. Ale vy jste mě neuposlechli." I přišel Hospodinův posel a posadil se v Ofře pod posvátným stromem, který náležel Jóašovi Abíezerskému; jeho syn Gedeón mlátil pšenici v lisu, aby s ní utekl před Midjánci. Hospodinův posel se mu ukázal a oslovil jej: „Hospodin s tebou, udatný bohatýre!" Gedeón mu odpověděl: „Dovol, můj pane, je-li s námi Hospodin, proč nás tohle všechno potkává? Kde jsou všechny jeho podivuhodné činy, o nichž nám vypravovali naši otcové? Říkali: ‚Což nás Hospodin nevyvedl z Egypta?' Ale teď nás Hospodin zavrhl a vydal do rukou Midjánců." Hospodin se k němu obrátil a pravil: „Jdi v této své síle a vysvobodíš Izraele z rukou Midjánců. Hle, já tě posílám." On mu však namítl: „Dovol prosím, Panovníku, jak bych mohl Izraele vysvobodit? Můj rod je v Manasesovi nejslabší a já jsem v otcovském domě nejnepatrnější." Ale Hospodin mu řekl: „Protože já budu s tebou, pobiješ Midjánce jako jediného muže."_
 
 ## Žalm
+
+Žalm je odpovědí na Boží činy. Každý verš připomíná něco, co Bůh učinil – stvořil svět, zachránil svůj lid, pamatuje na ponížené. Tyto činy přicházejí nečekaně a bez nároku na ně: refrén „Jeho milosrdenství je věčné" naznačuje, že Boží iniciativa není výjimka, ale stálý rytmus jeho jednání. Víra je tady ve formě chvály – vděčného uznání toho, co Bůh koná.
 
 _1. Chválu vzdejte Hospodinu, protože je dobrý. (Jeho milosrdenství je věčné.)_
 
@@ -66,13 +70,15 @@ _R: Jako vysoko je nad zemí nebe…_
 
 ## Druhé čtení (Žd 11, 1-3.7.32-40)
 
+Tento úryvek je jakýmsi „katalogem víry" – přehlídkou lidí, kteří jednali na základě Božích příslibů, aniž viděli jejich naplnění. Překvapivé je, že mezi nimi najdeme pochybovače, slabé i pronásledované. Víra zde není jistota získaná důkazy, ale důvěra v Boha, který jedná přesahujícím způsobem. Boží iniciativa se ukázala v zaslíbeních; lidská víra je odpovědí, která tato zaslíbení bere vážně – i když cíl není ještě vidět. Gedeon je zmíněn jménem – a dnes nese jeho jméno i náš syn.
+
 _Čtení z listu Židům_
 
 _Věřit Bohu znamená spolehnout se na to, v co doufáme, a být si jist tím, co nevidíme. K takové víře předků se Bůh přiznal svým svědectvím. Ve víře chápeme, že Božím slovem byly založeny světy, takže to, na co hledíme, nevzniklo z viditelného. Noe věřil, a proto pokorně přijal, co mu Bůh oznámil a co ještě nebylo vidět, a připravil koráb k záchraně své rodiny. Svou vírou vynesl soud nad světem a získal podíl na spravedlnosti založené ve víře. Mám ještě pokračovat? Vždyť by mi nestačil čas, kdybych měl vypravovat o Gedeónovi, Barákovi, Samsonovi, Jeftovi, Davidovi, Samuelovi a prorocích, kteří svou vírou dobývali království, uskutečňovali Boží spravedlnost, dosáhli toho, co jim bylo zaslíbeno; zavírali tlamy lvům, krotili plameny ohně, unikali ostří meče, v slabosti nabývali síly, vedli si hrdinsky v boji, zaháněli na útěk vojska cizinců; ženám se jejich mrtví vraceli vzkříšení. Jiní byli mučeni a odmítli se zachránit, protože chtěli dosáhnout něčeho lepšího, totiž vzkříšení. Jiní zakusili výsměch a bičování, ba i okovy a žalář. Byli kamenováni, mučeni, řezáni pilou, umírali pod ostřím meče. Chodili v ovčích a kozích kůžích, trpěli nouzi, zakoušeli útisk a soužení. Svět jich nebyl hoden, bloudili po pouštích a horách, skrývali se v jeskyních a roklinách země. A ti všichni, ačkoliv osvědčili svou víru, nedočkali se splnění toho, co bylo zaslíbeno, neboť Bůh, který zamýšlel pro nás něco lepšího, nechtěl, aby dosáhli cíle bez nás._
 
 ## Evangelium (Lk 1,26-38)
 
-Zvěstování je příběh o povolání. Anděl přichází za konkrétním člověkem – za Marií – a oznamuje jí, že skrze ni Bůh vykoná něco velkého. Maria se nejprve ptá, pak souhlasí: **„Ať se mi stane podle tvého slova."** Bůh nepůsobí mimo lidi, ale skrze ně. Hledá ty, kteří jsou ochotni říct své „ano".
+Zvěstování je příběh o Boží iniciativě, která přichází zcela nečekaně. Anděl přichází za konkrétním člověkem – za Marií – a oznamuje jí, že skrze ni Bůh vykoná něco velkého. Maria se nejprve zarazí a ptá se, pak souhlasí: **„Ať se mi stane podle tvého slova."** To je odpověď víry – ne slepé poslušnosti, ale důvěry v Boha, jehož jednání přesahuje lidské chápání. Bůh nepůsobí mimo lidi, ale skrze ně. Hledá ty, kteří jsou ochotni říct své „ano".
 
 _Počneš a porodíš syna._
 
