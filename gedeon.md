@@ -94,10 +94,63 @@ Slyšené Boží slovo je dále vykládáno.
 
 Na slyšené a dále rozvíjené Boží slovo odpovídáme přímluvami. V důvěře v Boha, který prokázal už mnohokrát velké skutky.
 
+Modleme se nyní společně za toto dítě, za jeho rodiče a kmotry, i za církev a za svět, ve kterém bude Gedeon Šarbel vyrůstat a žít. Z celého srdce prosme:
+**Pane, smiluj se.**
+
+*(slovensky)* Prosme za Gedeona Šarbela, aby sa vo krste znovuzrodil z vody a z Ducha Svätého a mal účasť na Kristovej smrti a zmŕtvychvstaní.
+**Pane, smiluj se.**
+
+*(česky)* Aby podle příkladu soudce Gedeóna dovedl slyšet Boží volání a s odvahou se postavit zlu, kdykoli to bude třeba.
+**Pane, smiluj se.**
+
+*(slovensky)* Aby na príhovor svätého Šarbela dával prednosť tomu, čo sa páči Bohu, pred tým, čo sa páči ľuďom, aj keby to znamenalo ísť proti prúdu.
+**Pane, smiluj se.**
+
+*(česky)* Prosme za Karla a Dominiku i za nás kmotry, abychom byli Gedeonovi věrnými průvodci na cestě víry — ne dokonalými, ale oddanými a vytrvalými.
+**Pane, smiluj se.**
+
+*(slovensky)* Prosme za nenarodené deti a za bezdetné rodiny, aby sa každý ľudský život od svojho počiatku tešil ochrane, prijatiu a láske a aby tí, ktorí túžia po dieťati, nezostali vo svojej túžbe opuštění.
+**Pane, smiluj se.**
+
+*(česky)* Prosme za církev, aby byla nablízku všem, kdo trpí, a aby nikdo nezůstal ve své bolesti sám a bez pomoci.
+**Pane, smiluj se.**
+
+
+Bože, náš Otče,
+
+tys pramenem života a lásky;
+
+svěřujeme ti Gedeona Šarbela i všechny, za které jsme prosili.
+
+Upevni v nás víru, posilni naději a rozhojň lásku,
+
+abychom ti byli věrní v každém čase
+
+a jednou došli k radosti tvého království.
+
+Skrze Krista, našeho Pána.
+
+Amen.
 
 # Litanie
 
 Bezprostřední příprava křtu. Vzýváme jména těch, v kterých se Bůh prokazatelně oslavil. Přidáváme patrony křtěného dítěte.
+
+**Pane, smiluj se.** *(Pane, smiluj se.)*
+**Kriste, smiluj se.** *(Kriste, smiluj se.)*
+**Pane, smiluj se.** *(Pane, smiluj se.)*
+
+Svatá Maria, Matko Boží, *oroduj za nás.*
+
+Svatý Josefe, *oroduj za nás.*
+
+Svatý Šarbeli, *oroduj za nás.*
+
+Svatý Martine, *oroduj za nás.*
+
+Svatý Jakube, *oroduj za nás.*
+
+Všichni svatí a světice Boží, *orodujte za nás.*
 
 
 # Exorcismus a mazání olejem
@@ -162,4 +215,4 @@ Kněží podávají svaté přijímání. Věříme, že v tuto chvíli se člov
 
 # Závěrečné požehnání
 
-Obřad končí požehnáním, v němž kněz vyprošuje Boží přízeň pro rodiče, kmotra a ostatní přítomné.
+Obřad končí požehnáním, v němž kněz vyprošuje Boží přízeň pro rodiče, kmotry a ostatní přítomné.
