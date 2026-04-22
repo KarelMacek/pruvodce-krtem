@@ -122,7 +122,7 @@ tys pramenem života a lásky;
 
 svěřujeme ti Gedeona Šarbela i všechny, za které jsme prosili.
 
-Upevni v nás víru, posilni naději a rozhojň lásku,
+Upevni v nás víru, posilni naději a rozhojni lásku,
 
 abychom ti byli věrní v každém čase
 
